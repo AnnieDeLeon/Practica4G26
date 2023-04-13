@@ -1,1 +1,1 @@
-Hola soy Lalo Miranda
+Lalo Miranda
